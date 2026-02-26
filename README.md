@@ -122,7 +122,7 @@ It reflects the intersection of **technical knowledge** and **practical risk man
 ## Author
 
 **Bidemi Salami**  
-🔗 [LinkedIn](https://www.linkedin.com/in/engr-bidemi-salami-94895736)  
+🔗 [LinkedIn](https://www.linkedin.com/in/bidemisalami
 📧 salamibidemi5@gmail.com  
 🐙 [GitHub](https://github.com/Bidexxxz)
 
